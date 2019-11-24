@@ -1,2 +1,0 @@
-# DzikuBOT-vps
- 
